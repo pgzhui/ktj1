@@ -1,1 +1,1 @@
-I am the God!
+I am the God
